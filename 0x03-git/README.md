@@ -1,1 +1,1 @@
-I love myself
+Richard loves God
